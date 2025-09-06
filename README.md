@@ -24,7 +24,7 @@ I’m here to **redefine it** – to create the kind of breakthroughs that feel 
 
 ### 🌐 Let’s connect  
 - 💼 [LinkedIn](https://www.linkedin.com/in/nishanthchandran/)  
-- 🌎 [Personal Website](nishanth-c.github.io)  
+- 🌎 [Personal Website](https://nishanth-c.github.io)  
 - ✉️ [Email](mailto:nishanth.mailmehere@gmail.com)  
 
 ---
